@@ -1,2 +1,0 @@
-# GillesPLEDRAN
-CV_GillesPLEDRAN
